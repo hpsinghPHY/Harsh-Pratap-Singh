@@ -1,2 +1,2 @@
 # Harsh-Pratap-Singh
-My resume as an Physics enthusiast
+My resume as a Physics enthusiast
